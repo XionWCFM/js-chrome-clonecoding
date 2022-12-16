@@ -8,6 +8,8 @@
 
 자세한 리뷰는 아래 링크에서 서술함.
 
+https://xionwcfm.tistory.com/95
+
 <br/>
 <br/>
 
